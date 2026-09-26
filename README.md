@@ -1,2 +1,7 @@
 # manoj
-i want to
+
+
+
+
+
+focus on goal.
